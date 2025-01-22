@@ -35,7 +35,8 @@ I uploaded a picture (with consent) and in mere seconds, the AI produced a flawl
 - Easy to use
 - Cheap Paid Plan
 - Quick and precise results  
-- Excellent privacy and security  
+- Excellent privacy and security
+- 5 Free credits
 
 **Cons:**  
 - Limited free credits 
@@ -44,7 +45,7 @@ I uploaded a picture (with consent) and in mere seconds, the AI produced a flawl
 ⏩⏩⏩ **[Try Ailovenudes.com for Free](https://ailovenudes.com)**
 
 **Pricing**  
-- Free Plan: 3 free undressings  
+- Free Plan: 5 free undressings
 - Paid Plan: Starts at  $7.99 for more credits
 
 ---
